@@ -31,7 +31,7 @@ Be sure to join the chapter and be on the look out for the next event in technic
 4. Search Engine Optimization(SEO) Best Practices
 5. Tips on Landing Your First Job in Technical Writing
 
-In Case you have any question or need any clarification do reach out to me on either [Twitter](https://twitter.com/Kai_mwanyumba) or [LinkdeIn](https://www.linkdin.com/in/brayan-mwanyumba-3094982227) and i will be more than glad to be of help to you.
+In Case you have any question or need any clarification do reach out to me on either [Twitter](https://twitter.com/Kai_mwanyumba) or [LinkdeIn](https://www.linkedin.com/in/brayan-mwanyumba-309498227) and I will be more than glad to be of help to you.
 
 Thank You For Attending My Session 😇 
 
